@@ -15,9 +15,12 @@
 |  5.すしらーめんりく   |     10.日常組      |
   
 **※敬称略**
-  なんとなくでお気に入りYouTuberの詳細書きます(個人的見解成分大目ですご了承ください)    
+  
 
   
+  なんとなくでお気に入りYouTuberの詳細書きます(個人的見解成分大目ですご了承ください)    
+
+
 ## 東海オンエア  
 ![東海オンエア](https://github.com/MAIKOKAWATA/favorite_YouTubers/blob/master/img/main_toukai.png)  
 愛知県　岡崎市といえばこの6人。  
