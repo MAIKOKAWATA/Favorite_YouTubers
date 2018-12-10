@@ -19,7 +19,7 @@
 ## 東海オンエア  
 愛知県　岡崎市といえばこの6人。  
 		メンバーは
-		<span style="color :orange;">てつや</span>
+		<span style="color :#ee7800;">てつや</span>
 		、
 		<font color="pink">ゆめまる</font>
 		、
