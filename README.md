@@ -18,11 +18,11 @@
   なんとなくでお気に入りYouTuberの詳細書きます(個人的見解成分大目ですご了承ください)    
 ## 東海オンエア  
 愛知県　岡崎市といえばこの6人。  
-		メンバーは<font color="orange">てつや</font>、<font color="pink">ゆめまる</font>、<font color=green">としみつ</font>、<font color="blue">りょう</font>、<font color="yellow">しばゆー</font>、<font color="brown">虫眼鏡</font>の個性豊かな6人です♪  
+		メンバーは<font color="orange">てつや</font>、<font color="pink">ゆめまる</font>、<font color="green">としみつ</font>、<font color="blue">りょう</font>、<font color="yellow">しばゆー</font>、<font color="brown">虫眼鏡</font>の個性豊かな6人です♪  
 		※メンバーの名前の文字の色はそれぞれのメンバーカラーです。
 岡崎観光伝道師も務めております。  
 詳しくは[岡崎市のサイト](https://okazaki-kanko.jp/feature/kankodendoshi/kankodendoshi)へGO！
 	岡崎市中に等身大パネルが設置されたこともあるんです。  
-(そしててつやくんパネルは盗難、ゆめまる君パネルは破損･･･)   
+(そしててつやくんパネルは盗難、ゆめまる君パネルは破損･･･)    
 そんなYouTuberの第一線で活躍する彼らのお気に入り動画はこちら↓↓↓    
 
