@@ -49,6 +49,8 @@
   
 動画を見てくすっと笑えるもしくは大声で笑える動画をいくつかご紹介させていただきます。
   
-【1本目】[第一回誰が一番売れそうなCM作れるか選手権！！](https://www.youtube.com/watch?v=RX3FcNnFku0)
+【1本目[文理対決シリーズ](https://www.youtube.com/watch?v=RX3FcNnFku0)
   
-![一回誰が一番売れそうなCM作れるか選手権  ！]()
+![一回誰が一番売れそうなCM作れるか選手権  ！サムネイル](https://github.com/MAIKOKAWATA/favorite_YouTubers/blob/master/img/toukai_cmzukuri.jpg)
+  
+
