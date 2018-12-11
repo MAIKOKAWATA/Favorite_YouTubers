@@ -78,6 +78,8 @@
   
 【2本目】[てつやのお弁当のハンバーグをこっそり食べちゃおう！](https://www.youtube.com/watch?v=OoB8djkpmP8)
   
+![ハンバーグサムネイル](https://github.com/MAIKOKAWATA/favorite_YouTubers/blob/master/img/toukai_sub_hanbagu.jpg)
+
 この動画は、東海オンエアのメインチャンネルではなく、サブチャンネル「東海オンエアの控え室」にアップされている動画です。
   
 サブチャンネルならではのまったりゆるやかな雰囲気の動画も楽しんでみてください。
@@ -134,7 +136,7 @@
 
 【2本目】[今更ですが激辛ペヤングを食べます](https://www.youtube.com/watch?v=bhPtARlVwJ8)
   
-![ペヤングサムネイル](https://github.com/MAIKOKAWATA/favorite_YouTubers/blob/master/img/toukai_imasarapeyangu.jpg)
+![ペヤングサムネイル](https://github.com/MAIKOKAWATA/favorite_YouTubers/blob/master/img/toukai_sub_imasarapeyangu.jpg)
   
 この動画は、東海オンエアのメインチャンネルではなく、サブチャンネル「東海オンエアの控え室」にアップされている動画です。
   
