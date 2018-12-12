@@ -113,7 +113,7 @@
 1.[【ガチ奇跡】絶滅危惧種のオオゴキブリを捕獲せよ！！！](https://www.youtube.com/watch?v=H1-4kM3n-Fg&t=1s)
   
 2.[【ブランド大好き男】てつやの好きそうなもの押し売り選手権！](https://www.youtube.com/watch?v=-1NvzQlsxpg)
-　　
+  
 【3本目】[【新発見】魚よりもイケてる干物作り選手権！](https://www.youtube.com/watch?v=gR1tQv-yFes)
   
 ![干物サムネイル](https://github.com/MAIKOKAWATA/favorite_YouTubers/blob/master/img/toukai_himono.jpg)
